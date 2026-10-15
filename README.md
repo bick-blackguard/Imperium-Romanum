@@ -237,4 +237,4 @@ Imperium Romanum is the full free version with all features and updates included
 Download Imperium Romanum today and start your journey as a Roman governor! Experience the challenges of leadership and the thrill of strategy in this exceptional game.
 
 ---
-**Last updated:** 2026-10-15 18:06:04 UTC
+**Last updated:** 2026-10-15 21:55:51 UTC
